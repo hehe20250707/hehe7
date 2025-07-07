@@ -11,4 +11,4 @@
 
 在这些平台上，你可以轻松找到丰富的日本AV免费影片资源。平台根据影片类型、演员等进行分类，帮助用户快速找到感兴趣的内容。每部影片都提供了详细的描述，包括演员、时长、清晰度等信息。平台支持高清视频播放，且能够根据网络速度自动优化播放质量，确保流畅的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hehe20250707/hehe7 ）</span>
